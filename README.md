@@ -1,4 +1,4 @@
- - Hi, I’m nicko (with a Ck then an O)
+ - Hi, I’m nicko (with a ck then an O)
 - Music is my first love but I enjoy all things creative...which led me here
 - 🌱 I’m currently learning javascript, html, css and all that jazz
 - 📫 How to reach me ... instagram- lovefornicko , or good old fashion email- cadetn23@gmail.com
